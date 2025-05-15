@@ -1,2 +1,2 @@
-the world is mine
+the world is yours
 # Mikullas
